@@ -1,2 +1,5 @@
-# estudos-biblicos
+# Estudos Biblicos
+
 Série de Estudos Bíblicos
+
+

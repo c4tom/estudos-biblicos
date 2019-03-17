@@ -1,0 +1,3 @@
+# A Natureza de Jesus Cristo
+
+Heb 2:14  Visto, pois, que os filhos têm participação comum de carne e sangue, destes também ele, igualmente, participou, para que, por sua morte, destruísse aquele que tem o poder da morte, a saber, o diabo,
